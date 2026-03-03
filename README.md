@@ -7,4 +7,4 @@ catjorafaq@gmail.com it is my FAQ
 ## Yotube
  	www.youtube.com/@Catjora6891-official
 ## Telegram
-t.me/catjora6891dev
+https://t.me/catjora6891dev
